@@ -1,1 +1,1 @@
-# Infinte-Items-Mod-
+# Infinte Items Mod
